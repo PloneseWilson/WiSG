@@ -7,4 +7,4 @@
    -> Dover Drone Field  
    -> Anglo-Chinese Junior College  
    -> Citadines Connect Rochester  
-   -> Buona Vista CC24/EW21 (Star Vista)  
+   -> Buona Vista CC22/EW21 (Star Vista)  
