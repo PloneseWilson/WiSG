@@ -9,7 +9,7 @@
    -> Citadines Connect Rochester  
    -> Buona Vista CC22/EW21 (Star Vista)
 
-2. Buona Vista -> Botanic Garden 
+2. Buona Vista -> Botanic Garden  
    All kinds of residence in SG, from average to above well-off 
  
    Buona Vista CC22/EW21  
