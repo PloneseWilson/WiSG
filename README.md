@@ -12,7 +12,7 @@
 2. Buona Vista -> Botanic Garden 
    All kinds of residence in SG, from average to above well-off 
  
-   Buona Vista CC22/EW21 
+   Buona Vista CC22/EW21  
    -> Blk 8 HDB Holland  
    -> DBS Holland Village Branch  
    -> Holland Residences  
